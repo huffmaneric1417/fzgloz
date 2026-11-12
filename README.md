@@ -1,0 +1,2 @@
+# fzgloz
+Daily digest notes
